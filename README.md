@@ -1,4 +1,4 @@
-# [Resmi™^] UFC 314 12 Nisan 2025 TV Kanalında CANLI YAYIN
+# [Resmi™^] UFC 314 12 Nisan 2025 TV Kanalında YAYIN
 UFC, UFC 314 için Miami'ye geliyor. İki üst düzey dövüşçü ana etkinlikte karşı karşıya geliyor.
 
 🔴 [🅸🆉🅻🅴🔴▶️ CANLI YAYIN İÇİN BURAYA TIKLAYIN](https://www.ch8gs4fh.com/FB8DBS2/D48FCXF/)
